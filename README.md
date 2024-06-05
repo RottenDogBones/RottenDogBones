@@ -10,4 +10,4 @@
 
                                     he     *they*     **it**       [++](https://en.pronouns.page/@RottenDogBones)
 									
-                                     [my rentry hoard](https://rentry.co/Cannieshoard) (wip) / [main rentry](rentry.co/Rottingbones)
+                                     [my rentry hoard](https://rentry.co/Cannieshoard) (wip) / [main rentry](rentry.co/RottingBones)
